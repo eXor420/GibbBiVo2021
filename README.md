@@ -10,4 +10,4 @@ Bitte beachte, dass einige Module fehlen, da ich entweder keine Unterlagen dazu 
 
 Falls ich dir helfen oder dich inspirieren konnte, würde ich mich über ein kurzes "Danke" (Discord @eXor420) freuen. Wenn du mich zusätzlich unterstützen möchtest, kannst du mir gerne einen Kaffee spendieren. Natürlich ist das völlig optional, aber jede Unterstützung wird sehr geschätzt! ☕
 
-[Buy Me a Coffee](https://www.buymeacoffee.com/eXor420)
+[Buy Me a Coffee](https://www.buymeacoffee.com/eXor404)
